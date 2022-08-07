@@ -4,10 +4,10 @@
 
 ----------
 # DISCORD
-Terror#0077
+Terror#0077 (takes credit bc its his acc)
 
 &
 
-uy#8103
+uy#8103(the actual coder)
 
 ----------
