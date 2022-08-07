@@ -8,7 +8,7 @@ Terror#0077 (takes credit bc its his acc)
 
 &
 
-uy#8103(the actual coder)
+uy#8103[the actual coder](https://github.com/4gh9)
 
 ----------
 # Latest Project
