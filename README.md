@@ -8,7 +8,8 @@ Terror#0077 (takes credit bc its his acc)
 
 &
 
-[uy#8103](https://github.com/4gh9) (the actual coder)
+[uy#8103](https://github.com/4gh9) (the actual coder) pss from terror uy cant code
+
 
 ----------
 # Latest Project
