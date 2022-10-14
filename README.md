@@ -4,7 +4,7 @@
 
 ----------
 # DISCORD
-Terror#0077 (takes credit bc its his acc)
+ blatant#9444 (takes credit bc its his acc)
 
 &
 
